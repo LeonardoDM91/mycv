@@ -1,9 +1,3 @@
-# Curriculum Vitae
+# Leonardo Dal Maso
 
-```
-{
-  "firstName": "Leonardo",
-  "lastName": "Dal Maso",
-  "age": 25
-}
-```
+-###Data di Nascita
