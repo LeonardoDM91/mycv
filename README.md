@@ -10,3 +10,9 @@
 - **DIPLOMA LAUREA TRIENNNALE SCIENZE DELL'EDUCAZIONE E DELLA FORMAZIONE** *2021* Università degli Studi di Padova, Sede Rovigo.
 
 ## Esperienza Lavorativa
+- **Operatore Cinema**
+
+- | Syntax | Description |
+| ----------- | ----------- |
+| Header | Title |
+| Paragraph | Text |
