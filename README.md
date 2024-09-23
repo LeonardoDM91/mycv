@@ -27,3 +27,10 @@ Ho preso parte all'equipe educativa della comunità residenziale femminile della
 
 *11/23 ~ 03/24 Vicenza, Italia*
 
+##Hobby e Interessi
+- Musica
+- Sport
+- Videogames/Giochi da Tavolo
+- Letteratura/Fumetti
+- Cultura Giapponese
+
