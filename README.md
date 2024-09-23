@@ -27,11 +27,11 @@ Ho preso parte all'equipe educativa della comunità residenziale femminile della
 *11/23 ~ 03/24 Vicenza, Italia*
 
 ## Hobby e Interessi
-- **Musica**
+- **Musica:**
 Suono il basso dall'età di 12 anni, da allora ho avuto il tempo e il modo di imparare a suonare da autodidatta anche la chitarra, le percussioni e a cantare. Ciò mi ha permesso di entrare in diverse band, principalmente rock (sia di cover band che con canzoni originali), e di partecipare a numerosi concerti live.
-- **Sport**
+- **Sport:**
 Durante l'adolescenza ho avuto modo di praticare nuoto pinnato, arti marziali e pallamano. Grazie a mio padre sono riuscito a maturare anche qualche piccola esperienza nell'ambito della navigazione a vela. Ad oggi le mie passioni in ambito sportivo si limitano al trekking e all'arrampicata a livello amatoriale.
-- **Videogames/Giochi da Tavolo**
+- **Videogames/Giochi da Tavolo:**
 Da sempre appassionati di videogames tra i generi più disparati: tattici, rpg, action adventure, platform e metroidvania. Col tempo la passione si è tradotta anche verso i giochi da tavolo fisici e, in particolare nei giochi di ruolo (Dungeon&Dragons) dove ho avuto modo di partecipare col ruol di Dungeon Master.
-- **Letteratura/Fumetti**
+- **Letteratura/Fumetti:**
 
