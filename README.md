@@ -22,3 +22,8 @@ Sono stato assunto presso la Fattoria Sociale "Il Pomodoro" nelle estati 2022 e 
 Ho svolto, con ruolo di educatore, attività di doposcuola, di integrazione nel territorio e di laboratori creativi con i ragazzi di età tra i 7 e i 12 anni. I ragazzi erano inseriti o tramite servizi sociali (presso il centro diurno al Patronato, Vicenza) o come privati dalle famiglie (presso la scuola secondaria di primo grado Leone XIII a Montecchio Maggiore).
 
 *01/10/22 ~ 12/06/23 Vicenza, Italia*
+- **Educatore Comunità Residenziale Femminile** COOPERATIVA SOCIALE TANGRAM
+Ho preso parte all'equipe educativa della comunità residenziale femminile della "coop. soc. Tangram", col ruolo di educatore. Nella quale ci si occupa e si prendono in cura ragazze adolescenti inserite tramite servizi sociali fino al raggiungimento della maggiore età o al riottenimento della responsabilità gentoriali dai perte dei genitori. Le attività associate riguardavano la sorveglianza (anche notturna), lo svolgimento di diverse mansioni legate alla vita quotidiana in casa (cucinare, pulire, bucato), attività di svago, uscite e gestione della salute psicofisica (accompagnamenti dal medico/psicologo) o di assistenza nelle questione burocratiche/amministrative (scuola, lavoro, salute etc etc).
+
+*11/23 ~ 03/24 Vicenza, Italia*
+
