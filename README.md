@@ -12,7 +12,5 @@
 ## Esperienza Lavorativa
 - **Operatore Cinema**
 
-| Syntax | Description |
-| ----------- | ----------- |
 | Header | Title |
 | Paragraph | Text |
