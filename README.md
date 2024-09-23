@@ -1,8 +1,6 @@
-# Ciao a tutti, belli e brutti!
+# Leonardo Dal Maso
 
-1. uno
-2. due
-3. tre
-- abra
-- kadabra
-- alakazam
+| Syntax | Description |
+| ----------- | ----------- |
+| Header | Title |
+| Paragraph | Text |
