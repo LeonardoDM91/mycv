@@ -1,4 +1,5 @@
-# Leonardo Dal Maso
+
+![alt text](leo1.jpg)# Leonardo Dal Maso
 
 - Data di Nascita: 14/04/1991
 - Nazionalità: Italiana
