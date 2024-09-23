@@ -26,7 +26,7 @@ Ho preso parte all'equipe educativa della comunità residenziale femminile della
 
 *11/23 ~ 03/24 Vicenza, Italia*
 
-##Hobby e Interessi
+## Hobby e Interessi
 - **Musica**
 Suono il basso dall'età di 12 anni, da allora ho avuto il tempo e il modo di imparare a suonare da autodidatta anche la chitarra, le percussioni e a cantare. Ciò mi ha permesso di entrare in diverse band, principalmente rock (sia di cover band che con canzoni originali), e di partecipare a numerosi concerti live.
 - **Sport**
