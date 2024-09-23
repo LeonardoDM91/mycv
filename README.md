@@ -2,8 +2,8 @@
 
 - Data di Nascita: 14/041991
 - Nazionalità: Italiana
-- Numero di Telefono: 3420114576
-- Indirizzo Email: (+39) 3420114576
+- Numero di Telefono:(+39) 3420114576
+- Indirizzo Email: leodalmanaso@gmail.com
 
 ## Istruzione e Formazione
 - **DIPLOMA ITAS DIRIGENTI DI COMUNITA'** *2012/2013*, Istituto Paritario Talete, Via Spiniello 104, Acerra (NA), Italia.
