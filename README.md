@@ -1,6 +1,6 @@
 # Leonardo Dal Maso
 
-- Data di Nascita: 14/041991
+- Data di Nascita: 14/04/1991
 - Nazionalità: Italiana
 - Numero di Telefono:(+39) 3420114576
 - Indirizzo Email: leodalmanaso@gmail.com
